@@ -121,9 +121,11 @@ If one of these paths sounds relevant, send a short note with:
 - what kind of friction or review problem you are dealing with
 - which path seems closest
 
-Contact: **[your email here]**
+Contact: razorglint.ops@protonmail.com
 
 You can also connect through LinkedIn or the contact route you prefer to use publicly.
+Find me on LinkedIn - www.linkedin.com/in/damian-ketting-a5a769381
+
 
 ---
 
